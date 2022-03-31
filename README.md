@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Steponme711
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Steponme711/Steponme711 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+Im am looking for some one to help me understand how these people are able to know my every move  in home and outside my home
+I can hear them throughout my home harassing me and kids
+Frequency sounds none stop throught my home . And awhile bunch more . Can some led me in right direction on how all this can come about
